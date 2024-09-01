@@ -1,0 +1,1 @@
+All content in this repo is licensed under the Creative Commons Attribution Share-Alike 4.0 International license available here, including specific legal wording as well: https://creativecommons.org/licenses/by-sa/4.0/
